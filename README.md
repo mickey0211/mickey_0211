@@ -1,2 +1,2 @@
 # mickey_0211
-game bot bad
+i like all game but iya itu tuh lepas beban dengan maen game
